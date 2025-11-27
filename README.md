@@ -7,6 +7,8 @@ Vamos a mais uma conquista na sua formação profissional !
 ## Integrantes
 ** Quem é essa equipe massa !
 
+Miguel,arthur,ariane,clara vitoria,enzo,yury,gabriel kauan,ellis.
+
 Preciso que faça uma auto biografia sobre ti, pensando com uma empresa pode contratar você.
 * **Lembre** do seu Portifolio e como suas hard e soft skill's pode ajudar e Lembre-se do Hikigai!
 
